@@ -1,4 +1,4 @@
-# Ishita
+# ishitatheresearchanalyst.github.io 
 
 📌📌Represent India. Strengthen state-to-state relations, promote business links, facilitate cultural and people-to-people exchanges. Negotiate acceptable options to expand opportunities, implement projects, build relations.
 
