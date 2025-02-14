@@ -23,5 +23,5 @@ Recipient of accolades like Great Learning Rewards and certifications in generat
 
 👓Enthusiastic and dedicated: Moreover, determined and organized with a positive, self-motivated attitude. I am a passionate, optimistic individual who takes a logical approach to the challenges set.
 
-My service Page :A Small Initiative 
+My service Page :A New Initiative 
 https://www.linkedin.com/services/page/942495333429368567?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3BkAuL09ydQqabYfHUBrveSw%3D%3D
