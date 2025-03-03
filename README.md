@@ -27,5 +27,7 @@ I’m excited to announce the launch of my Service Page, where I offer tailored 
 For more details about my services, collaboration opportunities, or to discuss how I can add value to your projects, feel free to connect with me on LinkedIn. Let’s create something extraordinary together!
 
 🔗 LinkedIn Profile : https://www.linkedin.com/in/-ishitabahamnia-seniorresearchanalyst/
+
 🔗 LinkedIn Service Page : https://www.linkedin.com/services/page/942495333429368567/
+
 Thanks for reaching out.
