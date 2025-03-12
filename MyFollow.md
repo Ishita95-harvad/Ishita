@@ -32,4 +32,6 @@ For more details about my services, collaboration opportunities, or to discuss h
 
 🔗 LinkedIn Service Page : https://www.linkedin.com/services/page/942495333429368567/
 
-Thanks for reaching out.
+🔗 Github Profile :https://github.com/Ishita95-harvad
+
+**Thanks for reaching out.**
