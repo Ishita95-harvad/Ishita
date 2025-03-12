@@ -1,7 +1,9 @@
 **Follow ME**
 
-🔗 LinkedIn Profile : https://www.linkedin.com/in/-ishitabahamnia-seniorresearchanalyst/
+🔗 LinkedIn Profile :https://www.linkedin.com/in/-ishitabahamnia-seniorresearchanalyst/
 
-🔗 LinkedIn Service Page : https://www.linkedin.com/services/page/942495333429368567/
+🔗 LinkedIn Service Page :https://www.linkedin.com/services/page/942495333429368567/
 
-Thanks for reaching out.
+🔗 Github Profile :https://github.com/Ishita95-harvad
+
+**Thanks for reaching out.**
