@@ -1,4 +1,4 @@
-**ishitatheresearchanalyst.github.io**
+[**ishitatheresearchanalyst.github.io**](https://github.com/Ishita95-harvad/Ishita/blob/main/MyFollow.md#ishitatheresearchanalystgithubio)
 
 Welcome to My Portfolio Repository! 🚀
 
