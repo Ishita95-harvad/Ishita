@@ -1,4 +1,5 @@
 **ishitatheresearchanalyst.github.io**
+
 Welcome to My Portfolio Repository! 🚀
 
 This repository is a curated collection of code, queries, and projects that showcase my expertise in data analysis, software development, and problem-solving. Here, you'll find a variety of projects that demonstrate my ability to transform raw data into actionable insights, build scalable solutions, and deliver impactful results.
